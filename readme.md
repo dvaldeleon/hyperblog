@@ -5,6 +5,7 @@ Pero no solo eso, es un lugar de creatividad dónde vamos a crear juntos los mej
 - Desde la corrupción hasta el cambio climatico que aúnque no es 100% culpa de los paises tercer mundistas, finalmente ellos van a ser os afectados.
 - Creado por David en la mañana
 -Incluye muchas cosas
+-Disponible para todas las edades
 *
 **- Así que unamonos y empecemos a trabajar. que !TRABAJO, SI HAY!***
 
